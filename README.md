@@ -1,0 +1,1 @@
+# vk_product_management
